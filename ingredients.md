@@ -1,0 +1,1 @@
+cocoa powder, sugar, butter, milk, baking soda, baking powder, vanilla essence, melted chocolate, refined flour , choco chips
